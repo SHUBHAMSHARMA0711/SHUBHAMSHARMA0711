@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **shubham07novm@gmail.com**
 
-- ⚡ Fun fact **Coding apps that fit in your pocket.**
+- ⚡ **Coding apps that fit in your pocket.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
